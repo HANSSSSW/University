@@ -4,8 +4,5 @@ E-mail : dkro91@naver.com
 
 ~
 fff
-lll
-ff
-bjhj
-asd
+ll
 asd
